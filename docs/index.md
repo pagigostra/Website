@@ -2,6 +2,8 @@
 
 For full documentation visit [mkdocs.org](https://www.mkdocs.org).
 
+The tortoise fell from the sky and all have died!
+
 ## Commands
 
 * `mkdocs new [dir-name]` - Create a new project.
