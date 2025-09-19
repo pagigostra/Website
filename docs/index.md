@@ -21,6 +21,9 @@ sdfgh
 
 sdfasdfsdafsdfsdfd
 
+Juan Failed to spell things right
+
+
 My screen is on and yours is off!!! HAHAHA.
 ## Commandsfdsfdsfdsfsd
 
