@@ -25,8 +25,6 @@ Juan Failed to spell things right
 
 Stop lying about how I spell
 
-YOU WILL NEVER WIN!:!?!?!! 
-
 
 My screen is on and yours is off!!! HAHAHA.
 ## Commandsfdsfdsfdsfsd
